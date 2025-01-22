@@ -1,2 +1,2 @@
 # pakistan
-it 14 augest independance day
+it 14 august independance day
